@@ -31,7 +31,7 @@ At a high level, I believe I work for you; not the other way around.  As such, m
 
 ### What I Expect of You
 
-- *Communication* – I prefer over communicating in lieu of not enough communication.  I attempt to pick up on subtle queues and read between the lines, but my mind reading skills still need some development. Don’t hesitate to let me know where I can help; I’m available via chat, e-mail, text or phone.  If there’s somewhere you need to be, just let me and the team know.
+- *Communication* – I prefer over communicating in lieu of not enough communication.  I attempt to pick up on subtle cues and read between the lines, but my mind reading skills still need some development. Don’t hesitate to let me know where I can help; I’m available via chat, e-mail, text or phone.  If there’s somewhere you need to be, just let me and the team know.
 -	*Feedback* – Now that you know what you can expect of me, definitely call me out on it if I’m not living up to the expectations I set out for you.  Additionally, if there’s an expectation you have for me that I haven’t laid out above, feel free to let me know.  I treat all feedback, positive and negative, as essential.  Just as you need to grow in your career, I need to grow as a manager too.  I believe a key component of this growth is through feedback from the people I serve.
 
 ## In Conclusion
